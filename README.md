@@ -31,5 +31,3 @@ To become Pakistan’s first top female ethical hacker and study BS Cybersecurit
 
 ---
 
-## 📫 Contact
-📧 humairanazir209@gmail.com *(if you want to show your email)*  
