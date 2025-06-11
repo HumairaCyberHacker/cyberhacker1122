@@ -32,4 +32,4 @@ To become Pakistan’s first top female ethical hacker and study BS Cybersecurit
 ---
 
 ## 📫 Contact
-📧 humaira.sadiq@gmail.com *(if you want to show your email)*  
+📧 humairanazir209@gmail.com *(if you want to show your email)*  
